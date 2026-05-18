@@ -1,10 +1,10 @@
-VIP Astrill VPN Plugin | criptografia de ponta a ponta + servidores de alta velocidade é o melhor Astrill VPN plugin com criptografia de ponta a ponta e servidores de alta
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/astrill-vpn-tt11/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
