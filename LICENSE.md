@@ -1,10 +1,10 @@
-VIP Astrill VPN Plugin | end-to-end encryption + high-speed servers is the best Astrill VPN plugin with end-to-end encryption and high-speed servers. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/astrill-vpn-tt11/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
